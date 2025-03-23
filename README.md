@@ -1,1 +1,1 @@
-# hello-world-spring-2025
+# hello-world-spring-2025 I am a graduate student at the University of Arizona in the GIST program. I am currently working for the City of Fort Worth as a Engineering Technician 2.  I enjoy bowling and fishing on my off time. I am also a member of the Knights of Columbus.
